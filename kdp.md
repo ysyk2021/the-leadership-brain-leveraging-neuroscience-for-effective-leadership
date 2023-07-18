@@ -10,7 +10,6 @@ From emotional intelligence and empathy to storytelling and collaboration, this 
 
 Written by experts in the field of neuroscience and leadership, "The Leadership Brain" is a must-read for anyone looking to stay ahead of the curve in today's fast-paced business world. With practical advice and real-world examples, this book offers a roadmap for leveraging the power of the brain to achieve personal and organizational success.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
