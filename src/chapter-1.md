@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 As a leader, your ability to understand and influence the behavior of others is critical to your success. The good news is that recent advances in neuroscience have given us new insights into how the brain works and how we can use this knowledge to become more effective leaders.
 

@@ -1,5 +1,3 @@
-Defining the Leadership Brain and Its Benefits
-=======================================================================
 
 In this chapter, we will define what is meant by the term "leadership brain" and discuss the benefits of understanding how the brain influences leadership.
 

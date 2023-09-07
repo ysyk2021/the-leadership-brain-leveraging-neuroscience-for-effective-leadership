@@ -1,5 +1,3 @@
-Chapter 6: Building Trust and Enhancing Relationships
-=====================================================
 
 Effective leadership is not just about achieving goals and driving results. It's also about building trust and enhancing relationships with team members, stakeholders, and customers. In this chapter, we will explore the importance of building trust and enhancing relationships in effective leadership and provide strategies for using empathy and active listening to build stronger connections.
 

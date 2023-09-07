@@ -1,5 +1,3 @@
-Chapter 3: Emotional Intelligence and the Brain
-===============================================
 
 In this chapter, we will explore the relationship between emotional intelligence and the brain. We will discuss the importance of emotional intelligence in effective leadership and provide techniques for developing emotional intelligence through mindfulness and other practices.
 

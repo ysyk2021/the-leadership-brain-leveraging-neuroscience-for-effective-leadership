@@ -1,5 +1,3 @@
-Chapter 5: Cognitive Biases and Decision-Making
-===============================================
 
 In this chapter, we will explore the role of cognitive biases in decision-making and their impact on effective leadership. We will also provide tips for identifying and mitigating cognitive biases to make better decisions.
 

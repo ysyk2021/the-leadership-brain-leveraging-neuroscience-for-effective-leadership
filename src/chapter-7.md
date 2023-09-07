@@ -1,5 +1,3 @@
-Chapter 7: Motivation and the Brain
-===================================
 
 Motivation is a critical component of effective leadership. When team members are motivated, they are more likely to be engaged, committed, and productive. In this chapter, we will explore the role of motivation and the brain in effective leadership and provide techniques for tapping into intrinsic and extrinsic motivation to drive performance and engagement.
 

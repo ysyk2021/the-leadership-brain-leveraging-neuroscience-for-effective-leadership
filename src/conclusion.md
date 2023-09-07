@@ -1,4 +1,4 @@
-# Conclusion
+
 
 Congratulations! You have reached the end of "The Leadership Brain: Leveraging Neuroscience for Effective Leadership." We hope that this book has provided you with valuable insights into how the brain works and how you can use this knowledge to become a more effective leader.
 

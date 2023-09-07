@@ -1,5 +1,3 @@
-Chapter 8: Stress Management and Resilience
-===========================================
 
 In this chapter, we will discuss the importance of stress management and resilience in effective leadership. We will also provide strategies for managing stress and building resilience to maintain focus and effectiveness under pressure.
 

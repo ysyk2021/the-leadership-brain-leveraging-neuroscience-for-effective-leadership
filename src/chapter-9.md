@@ -1,5 +1,3 @@
-Chapter 9: Using Neuroscience to Build High-Performing Teams
-============================================================
 
 As a leader, building a high-performing team is essential for achieving organizational success. Recent advances in neuroscience have given us new insights into how the brain works and how we can use this knowledge to build effective teams. In this chapter, we will explore techniques for using neuroscience to build high-performing teams and strategies for fostering collaboration, communication, and innovation through brain-based leadership practices.
 
