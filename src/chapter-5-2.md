@@ -1,5 +1,4 @@
-Chapter: Tips for Identifying and Mitigating Cognitive Biases to Make Better Decisions
-======================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore the concept of cognitive biases and their impact on decision-making in leadership. We will provide tips for identifying and mitigating these biases to help leaders make more effective and objective decisions by leveraging insights from neuroscience.
 

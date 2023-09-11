@@ -1,5 +1,4 @@
-Chapter: Role of Cognitive Biases in Decision-Making and Their Impact on Effective Leadership
-=============================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore the role of cognitive biases in decision-making and their impact on effective leadership. We delve into how cognitive biases influence leaders' judgment, decision processes, and outcomes, and discuss strategies to mitigate their effects by leveraging insights from neuroscience.
 

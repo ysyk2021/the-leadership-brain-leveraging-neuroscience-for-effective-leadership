@@ -1,5 +1,4 @@
-Chapter: Techniques for Tapping into Intrinsic and Extrinsic Motivation to Drive Performance and Engagement
-===========================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore the importance of intrinsic and extrinsic motivation in leadership and provide techniques for leaders to tap into these motivations to drive performance and enhance employee engagement. By leveraging insights from neuroscience, leaders can create an environment that fosters motivation and empowers individuals to excel.
 

@@ -1,5 +1,4 @@
-Chapter: Techniques for Using Neuroscience to Build High-Performing Teams
-=========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore the application of neuroscience in building high-performing teams and discuss techniques that leaders can utilize to leverage insights from neuroscience. By understanding the neural mechanisms underlying team dynamics, leaders can foster collaboration, enhance communication, and create an environment that supports the development of high-performing teams.
 
